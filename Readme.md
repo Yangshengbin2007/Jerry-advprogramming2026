@@ -1,5 +1,5 @@
-# Jerry-advprogramming2026
-# Portfolio 2024-2025 | Shengbin Yang
+# Jerry-advprogramming Portfolio 
+# Portfolio 2025-2026 | Shengbin Yang
 ## Email: yangshengbin821@gmail.com
 * Current High School: Skyline High School
 * Projected graduation in 2026
